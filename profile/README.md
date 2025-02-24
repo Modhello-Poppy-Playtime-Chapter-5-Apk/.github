@@ -1,6 +1,6 @@
 # **Poppy Playtime Chapter 5 APK [Última Versión 2025] Descarga Gratis La Para Android**
 
-| ![image](https://github.com/user-attachments/assets/57b54229-c309-4983-96aa-f32daf2435eb)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.io/poppy-playtime-chapter-5.html)  |
+| ![image](https://github.com/user-attachments/assets/18deb8ee-66b2-438e-9518-e120699a6c6b) | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.io/poppy-playtime-chapter-5.html)  |
 |:-------------------------------------------------:|-----------------------|
 
 ## **¿Qué es Poppy Playtime Chapter 5 APK?**
@@ -87,7 +87,7 @@ Este capítulo combina exploración, sigilo y resolución de rompecabezas en un 
 
 Descargar APKs de fuentes no verificadas puede implicar riesgos. Para garantizar la seguridad de tu dispositivo, descarga únicamente desde plataformas confiables como **ModHello.io** y escanea el archivo antes de instalar.
 
-![image](https://github.com/user-attachments/assets/18deb8ee-66b2-438e-9518-e120699a6c6b)
+![image](https://github.com/user-attachments/assets/f65ffba8-359a-40ea-b983-e311835a6017)
 
 ---
 
