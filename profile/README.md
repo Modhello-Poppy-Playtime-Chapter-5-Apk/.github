@@ -9,8 +9,6 @@ Poppy Playtime Chapter 5 APK es la nueva entrega del popular juego de terror y s
 
 La historia continúa revelando los oscuros secretos de la fábrica mientras los jugadores usan herramientas como el GrabPack para explorar, resolver rompecabezas y escapar de las amenazas ocultas en cada rincón.
 
-![image](https://github.com/user-attachments/assets/9e382be9-d7b9-4232-a2dd-11cf8232d31a) 
-
 ---
 
 ## **Características Destacadas de Poppy Playtime Chapter 5 APK**
@@ -32,6 +30,8 @@ Este capítulo combina exploración, sigilo y resolución de rompecabezas en un 
 - **Desbloqueo de Contenido Premium:** Accede a niveles y objetos exclusivos.
 - **Modos Personalizados:** Explora libremente sin restricciones.
 - **IA Mejorada:** Enemigos más inteligentes y reacciones realistas.
+
+![image](https://github.com/user-attachments/assets/9e382be9-d7b9-4232-a2dd-11cf8232d31a) 
 
 ---
 
